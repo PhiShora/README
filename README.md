@@ -56,6 +56,8 @@ Lucas Santana
 
 ## Referências 
 
+https://www.youtube.com/watch?v=hC0zF1unCGs
 
+https://www.youtube.com/watch?v=6mXODD-JkHQ
 
 ## OBRIGADO POR TER LIDO ATÉ AQUI!
